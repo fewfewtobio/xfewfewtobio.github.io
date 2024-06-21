@@ -1,2 +1,2 @@
 # fewfewtobio.github.io
-by Wattanan Jirstriluk
+by Wattanan Jiratriluk
